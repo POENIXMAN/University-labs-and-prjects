@@ -1,1 +1,1 @@
-# University-labs-and-prjects
+# University-labs-and-projects
